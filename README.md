@@ -10,6 +10,7 @@ Data Scince специалист, 80000 руб.
 - Телефон: +79617693325
 - Телеграм: [ivtroitskiy](https://t.me/ivtroitskiy)
 - Почта: ilya@troitskiy.name
+- Екатеринбург 
 
 ## Опыт работы
 
